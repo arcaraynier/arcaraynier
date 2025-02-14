@@ -45,5 +45,6 @@ Learn new skill and explore for more!
 - 💬 Ask me about ... 
 - 📫 How to reach me: ...
 - 😄 Pronouns: ... he
-- ⚡ Fun fact: ... I used to play violin
+- ⚡ Fun fact: ... I used to play violin.
+
 
