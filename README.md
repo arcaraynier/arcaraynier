@@ -25,9 +25,6 @@ Hello.
 
 ..
 
-sigh
-
-sigh
 . . .
  .
 
@@ -55,4 +52,6 @@ Learn new skill and explore for more!
 
 overwhelming 
 sigh
+sigh
+
 sigh
