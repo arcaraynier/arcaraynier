@@ -1,6 +1,6 @@
 ## Hi 👋, I'm Raynier G. Arca ↕
 
-Hey! <br>e
+Hey! <br>
 Carpe Diem.  
 <br> 
 <br><br>
