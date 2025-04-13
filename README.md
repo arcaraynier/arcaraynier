@@ -1,8 +1,8 @@
 ## Hi 👋, I'm Raynier G. Arca ↕
 
 Hey! <br>e
-Carpe Diem.  q
-<br> ..ee
+Carpe Diem.  
+<br> 
 <br><br>
 
 :sparkles: I'm currently upskilling through coursera and udemy <br> <br>ee
