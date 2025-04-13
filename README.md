@@ -4,7 +4,7 @@ Hey! <br>e
 Carpe Diem.  q
 <br> ..ee
 <br><br>
- weeeee
+
 :sparkles: I'm currently upskilling through coursera and udemy <br> <br>ee
 
 There are certain things to know about life
