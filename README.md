@@ -15,13 +15,9 @@ rgarca.work@gmail.com .
 
 📩 https://www.linkedin.com/in/arcaraynier/
 :accessibility: Hello
-just hello
 
-Helloooo
 
-Heyey e
-
-Hello. ee
+Hello. 
 
 ..
 
