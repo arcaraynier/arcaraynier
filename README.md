@@ -9,7 +9,7 @@ Carpe Diem.  .
 
 There are certain things to know about life
 
-:envelope: How to reach me? 
+:envelope: How to reach me? .
 
 rgarca.work@gmail.com .
 
