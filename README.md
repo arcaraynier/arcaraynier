@@ -11,7 +11,7 @@ There are certain things to know about life
 
 :envelope: How to reach me? .
 
-rgarca.work@gmail.com .
+rgarca.work@gmail.com ..
 
 📩 https://www.linkedin.com/in/arcaraynier/
 :accessibility: Hello
