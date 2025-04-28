@@ -1,7 +1,7 @@
 ## Hi 👋, I'm Raynier G. Arca ↕
 
 Hey! <br>
-Carpe Diem.  ...
+Carpe Diem.  ....
 <br> 
 <br><br>
 
