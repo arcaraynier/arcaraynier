@@ -8,7 +8,7 @@ Carpe Diem.  ......
 :sparkles: I'm currently upskilling through coursera and udemy <br> <br>ee
 
 There are certain things to know about life.
-
+...
 :envelope: How to reach me? .
 
 rgarca.work@gmail.com ..
