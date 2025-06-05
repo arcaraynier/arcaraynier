@@ -1,11 +1,11 @@
-..## Hi 👋, I'm Raynier G. Arca ↕
+Hi 👋, I'm Raynier G. Arca 
 ......
 Hey! <br>.
 Carpe Diem.  
 <br> 
 <br><br>
-.
-:sparkles: I'm currently upskilling through coursera and udemy <br> <br>
+
+I'm currently upskilling through coursera and udemy <br> <br>
 
 There are certain things .to know about life.
 :envelope: How to reach me? .
